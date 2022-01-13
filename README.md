@@ -1,1 +1,1 @@
-# law-media-kit
+# Law Media Kit
